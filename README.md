@@ -1,2 +1,0 @@
-# Mr.R
-DDOS ATTACK
